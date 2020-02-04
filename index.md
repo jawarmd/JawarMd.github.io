@@ -1,1 +1,0 @@
-Jawar pic
